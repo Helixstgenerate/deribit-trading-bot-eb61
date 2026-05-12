@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered deribit trading bot Executor | liquidity-provision + grid-trading, the #1 deribit trading bot. Includes liquidity-provision and grid-trading
 
 
 
